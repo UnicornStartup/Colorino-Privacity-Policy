@@ -1,0 +1,1 @@
+# Colorino-Privacity-Policy
